@@ -22,7 +22,7 @@ I am a Senior who is about to graduate in the fall of 2024 with a Geography Degr
 
 # Work Experience
 
-### My work experience varies to a wide array of skills such as; 
+#### My work experience varies to a wide array of skills such as; 
 * Construction 2020-2021, 
 * Delivery Driver 2021-2022, 
 * Server 2022-2023,
