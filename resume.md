@@ -10,7 +10,7 @@ I am a dedicated student who is pursuing a future in Geography and I am a very m
 
 # Education
 
-I am a Senior who is about to graduate in the fall of 2024 with a Geography Degree. 
+I am a Senior who is about to graduate in the fall of 2024 with a Geography Degree. WakeField High School 2018
 
 # Work Experience
 
