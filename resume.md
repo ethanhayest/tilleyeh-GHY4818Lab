@@ -28,4 +28,5 @@ Pharmacy Technician 2023-2024.
 
 (https://github.com/user-attachments/assets/2301de40-a01d-4b4c-8b81-6446bcc1d2e6)
 
+![image](https://github.com/user-attachments/assets/5085713b-3af8-4164-940f-17cdf544b783)
 
