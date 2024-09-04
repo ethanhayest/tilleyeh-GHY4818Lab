@@ -21,16 +21,15 @@ I am a Senior who is about to graduate in the fall of 2024 with a Geography Degr
 # Work Experience
 
 My work experience varies to a wide array of skills such as; 
-Construction 2020-2021, 
-Delivery Driver 2021-2022, 
-Server 2022-2023,
-Pharmacy Technician 2023-2024.  
+* Construction 2020-2021, 
+* Delivery Driver 2021-2022, 
+* Server 2022-2023,
+* Pharmacy Technician 2023-2024.  
 
 (https://github.com/user-attachments/assets/2301de40-a01d-4b4c-8b81-6446bcc1d2e6)
 
 https://www.linkedin.com/in/ethan-tilley-01490a309/
 
 
-![image](https://github.com/user-attachments/assets/6f207f9c-aa8f-484e-8f3c-47068c95119c)
 
 
