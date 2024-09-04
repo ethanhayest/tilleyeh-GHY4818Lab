@@ -32,6 +32,7 @@ I am a Senior who is about to graduate in the fall of 2024 with a Geography Degr
 
 https://www.linkedin.com/in/ethan-tilley-01490a309/
 
+![image](https://github.com/user-attachments/assets/93e11887-1c03-4c9f-aef2-8fe3d156b7f5)
 
 
 
