@@ -7,11 +7,11 @@ tilleyeh@appstate.edu
 # Introduction
 
 I am a dedicated student who is pursuing a future in Geography and I am a very motivated person who looks forward to work with a great company. 
-Intelligent 
-motivated
-Hardworking
-Works well in groups
-Think outside of the box
+* Intelligent 
+* motivated
+* Hardworking
+* Works well in groups
+* Think outside of the box
 
 # Education
 
