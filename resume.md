@@ -16,7 +16,7 @@ I am a dedicated student who is pursuing a future in Geography and I am a very m
 # Education
 
 I am a Senior who is about to graduate in the fall of 2024 with a Geography Degree. 
-Wakefield High School 2018
+* Wakefield High School 2018
 
 # Work Experience
 
@@ -28,5 +28,8 @@ Pharmacy Technician 2023-2024.
 
 (https://github.com/user-attachments/assets/2301de40-a01d-4b4c-8b81-6446bcc1d2e6)
 
-![image](https://github.com/user-attachments/assets/5085713b-3af8-4164-940f-17cdf544b783)
+https://www.linkedin.com/in/ethan-tilley-01490a309/
+
+
+
 
