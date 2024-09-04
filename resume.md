@@ -31,5 +31,6 @@ Pharmacy Technician 2023-2024.
 https://www.linkedin.com/in/ethan-tilley-01490a309/
 
 
+![image](https://github.com/user-attachments/assets/6f207f9c-aa8f-484e-8f3c-47068c95119c)
 
 
