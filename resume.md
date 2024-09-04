@@ -1,6 +1,6 @@
 # Ethan Tilley
 
-##Student at Appalachian State University 
+## Student at Appalachian State University 
 
 tilleyeh@appstate.edu
 
