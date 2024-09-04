@@ -30,6 +30,7 @@ My work experience varies to a wide array of skills such as;
 
 https://www.linkedin.com/in/ethan-tilley-01490a309/
 
+![image](https://github.com/user-attachments/assets/04dcefe3-7299-49e7-99db-6554add8b1fc)
 
 
 
